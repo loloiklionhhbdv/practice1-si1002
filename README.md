@@ -2,4 +2,4 @@
 
 Integrantes: Natalia Vergara Mendoza, Matias Palacio Gomez
 
-Video de presentación: [PENDIENTE: link del video]
+Video de presentación:
